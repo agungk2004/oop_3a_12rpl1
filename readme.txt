@@ -1,1 +1,1 @@
-this repository belongs to farid yurizki
+this repository belongs to agung kuncoro
