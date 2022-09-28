@@ -1,0 +1,1 @@
+this repository belongs to farid yurizki
